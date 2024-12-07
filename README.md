@@ -1,1 +1,1 @@
-# Akshay
+https://support.google.com/android/search?q=open+by+default&count=10
